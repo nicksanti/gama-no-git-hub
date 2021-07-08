@@ -1,1 +1,1 @@
-Script alterado em 08-07-2021
+alterado em 08-07-2021
